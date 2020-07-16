@@ -1,1 +1,1 @@
-Projekti nga lenda Rrjeta Kopmjuterike
+Projekti nga lenda Rrjeta Kompjuterike
